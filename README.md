@@ -5,7 +5,7 @@
 
 
 
-
+**Front-end Web Developer · Software Engineering Student ·**
 
 
 
